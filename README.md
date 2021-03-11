@@ -1,0 +1,1 @@
+# competition_signate_jr
